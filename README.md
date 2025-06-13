@@ -1,1 +1,1 @@
-This is admiral Raddus of the rebel alliance
+Call up a Hammerhead corvette. I have an idea.
